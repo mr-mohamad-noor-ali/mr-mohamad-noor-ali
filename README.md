@@ -14,3 +14,32 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+
+## 🚀 About Me
+Hi It's me == **Mohamad_Noor Ali**
+
+**Mohamad_Noor == my first name 😁**
+
+**I'm** a computer 🧑‍💻 science teacher 👨‍🏫 in **Al Azhar alsharif 🕌**.
+
+**I'm** from Egypt 🇪🇬.
+
+  from Upper Egypt, specifically Sohag Governorate.
+
+**Education:** I studied Management Information ℹ️ Systems at BHI.
+
+  graduated  in 2016🎓.
+
+
+
+**LinkedIn:** [Mohamad_Noor Ali](www.linkedin.com/in/mohamadnoor-ali)
+
+
+
+
+
+
+
+
+
+
