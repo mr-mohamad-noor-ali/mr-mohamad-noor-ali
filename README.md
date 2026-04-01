@@ -32,7 +32,7 @@ Hi It's me == **Mohamad_Noor Ali**
 
 
 
-**LinkedIn:** [Mohamad_Noor_Ali](www.linkedin.com/in/mohamadnoor-ali)
+**LinkedIn:** [Mohamad_Noor_Ali](https://www.linkedin.com/in/mohamadnoor-ali/)
 
 
 
